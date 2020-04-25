@@ -8,6 +8,10 @@
 
 The names listed should be the ones listed on FreeOnes with the alias usually being the IAFD name.
 
+[List of actresses](./LIST.md)
+
+[Table of actresses](./TABLE.md)
+
 ## Actresses
 ### A 
 Aaliyah Hadid
