@@ -122,7 +122,6 @@ Angie Moon
 Anie Darling
 Anikka Albrite
 Anissa Kate
-Anjelica
 Ann Marie Rios
 Anna Bell Peaks
 Anna De Ville
@@ -650,6 +649,7 @@ Kortney Kane
 Krissy Lynn
 Kristen Scott
 Kristina Rose
+Krystal Boyd / Abbie / Anjelica
 Krystal Orchid
 Kylie Nicole
 Kylie Page
