@@ -1,5 +1,9 @@
 ## Log
 
+## 2020-04-27
+#### Added
+* Lucy Doll 1
+
 ## 2020-04-25
 
 #### Replaced
