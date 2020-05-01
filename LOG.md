@@ -1,5 +1,10 @@
 ## Log
 
+## 2020-04-29
+#### Added
+* Karly Baker 4-9
+
+
 ## 2020-04-27
 #### Added
 * Lucy Doll 1
