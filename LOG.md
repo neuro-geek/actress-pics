@@ -1,9 +1,14 @@
 ## Log
 
+## 2020-05-01
+#### Added
+* Haley Reed 7-8
+* Harlow Harrison 1-4
+* Holly Starr 1
+
 ## 2020-04-29
 #### Added
 * Karly Baker 4-9
-
 
 ## 2020-04-27
 #### Added
