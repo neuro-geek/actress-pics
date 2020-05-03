@@ -1,5 +1,9 @@
 ## Log
 
+## 2020-05-02
+#### Added
+* Aiden Starr 7
+
 ## 2020-05-01
 #### Added
 * Haley Reed 7-8
