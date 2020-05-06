@@ -1,5 +1,9 @@
 ## Log
 
+## 2020-05-06
+#### Added
+* Jessie Andrews 13
+
 ## 2020-05-03
 #### Added
 * Tarra White 1
