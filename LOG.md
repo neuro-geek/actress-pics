@@ -1,5 +1,9 @@
 ## Log
 
+## 2020-05-03
+#### Added
+* Tarra White 1
+
 ## 2020-05-02
 #### Added
 * Aiden Starr 7
