@@ -1,5 +1,9 @@
 ## Log
 
+## 2020-05-09
+#### Added
+* Riley Mason 8
+
 ## 2020-05-06
 #### Added
 * Jessie Andrews 13
