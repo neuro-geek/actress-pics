@@ -9,7 +9,7 @@
 * Maitland Ward 1-8
 * Stella Raee 1-2
 
-### Replaced
+#### Replaced
 * Gina Valentina 2
 
 ## 2020-05-09
