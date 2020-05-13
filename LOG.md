@@ -1,5 +1,14 @@
 ## Log
 
+## 2020-05-13
+#### Added
+* Anna Bell Peaks 18-19
+* Lena Paul 2-7
+* Taylor Sands 3
+
+#### Replaced
+* Lena Paul 1
+
 ## 2020-05-12
 #### Added
 * Alexis Fawx 20
