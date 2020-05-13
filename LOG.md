@@ -1,5 +1,17 @@
 ## Log
 
+## 2020-05-12
+#### Added
+* Alexis Fawx 20
+* Anna Bell Peaks 15-17
+* Jade Jantzen 5
+* Krissie Dee 1
+* Maitland Ward 1-8
+* Stella Raee 1-2
+
+### Replaced
+* Gina Valentina 2
+
 ## 2020-05-09
 #### Added
 * Riley Mason 8
