@@ -1,5 +1,12 @@
 ## Log
 
+## 2020-05-14 - File dates are a bit wonky around here and yesterday.
+#### Added
+* Lena Paul 8, 12
+
+#### Renamed
+* Lena Paul pics lacking numbering 9-11
+
 ## 2020-05-13
 #### Added
 * Anna Bell Peaks 18-19
