@@ -103,7 +103,7 @@ Amirah Adara
 Amy Anderssen
 Ana Foxxx
 Ana Rose
-Ana Bell Evans / Anabelle
+Ana Bell Evans
 Anastasia Knight
 Anastasia Morna
 Andi Rye
@@ -298,7 +298,7 @@ Cherie Deville
 Cherry Kiss
 Chloe Amour
 Chloe Carter
-Chloe Couture / Chloe Cherry
+Chloe Couture
 Chloe Foster
 Chloe Scott
 Christiana Cinn
@@ -472,7 +472,7 @@ Ines Lenvin
 Iris Rose
 Isabella Nice
 Isabella Soprano
-Isabella Taylor / Isabella De Santos
+Isabella Taylor
 Isabelle Noir
 Isis Love
 Isis Taylor
@@ -652,7 +652,7 @@ Krissie Dee
 Krissy Lynn
 Kristen Scott
 Kristina Rose
-Krystal Boyd / Abbie / Anjelica
+Krystal Boyd
 Krystal Orchid
 Kylie Nicole
 Kylie Page
@@ -809,7 +809,7 @@ Miranda Miller
 Miriama Kunkelova
 Mischa Brooks
 Misha Cross
-Miss Goldie / Goldie Glock
+Miss Goldie
 Misty Stone
 Misty Vonage
 Miya Monroe
@@ -895,7 +895,7 @@ Phoenix Marie
 Pinky June
 Piper Perri
 Pocahontas Jones
-Polly Pons - Poopea
+Polly Pons
 Presley Hart
 Pristine Edge
 Priya Rai
@@ -917,7 +917,7 @@ Reagan Foxx
 Rebeca Taylor
 Rebecca Volpetti
 Rebel Lynn
-Red Fox - Michelle H
+Red Fox
 Reena Sky
 Remy LaCroix
 Rharri Rhound
@@ -981,7 +981,7 @@ Shae Celestine
 Shae Snow
 Shane Blair
 Shawna Lenee
-Shay Evans / Gia Milana
+Shay Evans
 Shay Jordan
 Shay Laren
 Shazia Sahari
@@ -1112,3 +1112,31 @@ Zoey Laine
 Zoey Monroe
 Zoey Nixon
 Zoey Portland
+
+## Common Aliases 
+"FreeOnes/IAFD" or "Name - Other - common - names"
+
+### A
+Ana Bell Evans / Anabelle
+
+### C
+Chloe Couture / Chloe Cherry
+
+### I
+Isabella Taylor / Isabella DeSantos - Isabella De Santos
+
+### K
+Krystal Boyd / Abbie - Anjelica
+
+### M
+Mattie Borders - Jessie Parker (Jessica Parker is a poor dupe on FO)
+Miss Goldie / Goldie Glock
+
+### P
+Polly Pons - Poopea
+
+### R
+Red Fox - Michelle H
+
+### S
+Shay Evans / Gia Milana
