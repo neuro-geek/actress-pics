@@ -351,7 +351,9 @@ Dani Jensen
 Daniela Davidoso
 Danielle Soul
 Danni Rivers
+Daphne Dare
 Darcie Dolce
+Darryl Hanah
 Dava Foxx
 Davina Davis
 Daya Knight
@@ -366,6 +368,7 @@ Desiree Night
 Destiny Lovee
 Devon Green
 Devon Lee
+Diamond Foxxx
 Diamond Jackson
 Diamond Kitty
 Dianne Dee
@@ -375,6 +378,7 @@ Dolly Little
 Dora Venter
 Draven Star
 Dylan Phoenix
+Dylan Ryder
 
 ### E
 Eden Sin
@@ -389,6 +393,7 @@ Ella Hughes
 Ella Knox
 Ella Nova
 Elle Alexandra
+Elle Voneva
 Ellena Woods
 Elli Foxx
 Ellie Leen
@@ -459,6 +464,7 @@ Hadley Haze
 Hadley Viscara
 Haley Reed
 Haley Sweet
+Haley Wilde
 Hanna Lay
 Hannah Hays
 Harley Dean
@@ -557,6 +563,7 @@ Jessie Rogers
 Jessie Volt
 Jessyka Swan
 Jewels Jade
+Jewelz Blu
 Jezebel Vessir
 Jezebelle Bond
 Jia Lissa
@@ -596,6 +603,7 @@ Karlie Montana
 Karly Baker
 Karma RX
 Karmen Karma
+Kasey Miller
 Kasey Warner
 Kat Dior
 Kat Monroe
@@ -650,6 +658,7 @@ Kim Kennedy
 Kimber Day
 Kimber Woods
 Kimberly Brix
+Kimberly Kendall
 Kimberly Moss
 Kimmy Granger
 Kinsley Eden
@@ -660,6 +669,7 @@ Kirsten Lee
 Kirsten Price
 Kissa Sins
 Kit Mercer
+Kitty Jaguar
 Kleio Valentien
 Kortney Kane
 Krissie Dee
@@ -668,6 +678,7 @@ Kristen Scott
 Kristina Rose
 Krystal Boyd
 Krystal Orchid
+Kylie Kalvetti
 Kylie Nicole
 Kylie Page
 Kylie Quinn
@@ -699,6 +710,7 @@ Lena Reif
 Lennox Luxe
 Lexi Belle
 Lexi Dona
+Lexi Foxy
 Lexi Lore
 Lexi Lovell
 Lexi Luna
@@ -713,6 +725,7 @@ Lilly Banks
 Lilly Ford
 Lily Adams
 Lily Cade
+Lily Glee
 Lily Jordan
 Lily Labeau
 Lily Lane
@@ -759,6 +772,7 @@ Lyen Parker
 Lyla Storm
 Lynna Nilsson
 Lyra Law
+Lyra Lockhart
 
 ### M
 Mackenzie Moss
