@@ -61,6 +61,7 @@ Alexis Fawx
 Alexis Grace
 Alexis Monroe
 Alexis Rodriguez
+Alexis Tae
 Alexis Texas
 Alice Coxxx
 Alice Echo
@@ -93,6 +94,7 @@ Amanda Lane
 Amara Romani
 Amaranta Hank
 Amarna Miller
+Amber Ashlee
 Amber Chase
 Amber Ivy
 Amber Nevada
@@ -144,6 +146,8 @@ April Snow
 Arabella Fae
 Arabelle Raphael
 Aria Alexander
+Aria Haze
+Aria Khaide
 Aria Lee
 Ariana Grand
 Ariana Marie
@@ -164,6 +168,7 @@ Ashley Adams
 Ashley Anderson
 Ashley Fires
 Ashley Lane
+Ashley Red
 Ashli Orion
 Ashlyn Molloy
 Ashlynn Brooke
