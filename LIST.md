@@ -470,9 +470,9 @@ Hope Howell
 India Summer
 Ines Lenvin
 Iris Rose
-Isabella De Santos
 Isabella Nice
 Isabella Soprano
+Isabella Taylor / Isabella De Santos
 Isabelle Noir
 Isis Love
 Isis Taylor
