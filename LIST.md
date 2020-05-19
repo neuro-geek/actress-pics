@@ -272,6 +272,7 @@ Candy Vivian
 Capri Anderson
 Capri Cavanni
 Carla Cox
+Carlota Teen
 Carly Rae Summers
 Carmen Bunny
 Carmen Caliente
@@ -317,6 +318,7 @@ Christiana Cinn
 Christie Stevens
 Christy Love
 Christy Mack
+Ciara Blue
 Cindy Crawford
 Cindy Starfall
 CJ Summers
