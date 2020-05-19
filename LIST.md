@@ -1213,25 +1213,39 @@ Zoey Portland
 "FreeOnes/IAFD" or "Name - Other - common - names"
 
 ### A
+Addison Ryder / Davina Davis
+Alana Cruise - Savannah Fyre
 Ana Bell Evans / Anabelle
 Anikka Albrite - Annika Albrite
 
+### B
+Busty Sarai / Sarai - Alex Allen - Sarai Keef
+
 ### C
+Carlota Teen / Penelope Cum
 Chloe Couture / Chloe Cherry
 
 ### D
 Dahlia Sky - Bailey Blue
 
+### H
+Haley Wilde / Gia DiMarco - Gia Di Marco
+
 ### I
 Isabella Taylor / Isabella DeSantos - Isabella De Santos
+
+### J
+Janessa Jordan - Jenessa Jordan
 
 ### K
 Krystal Boyd / Abbie - Anjelica
 
 ### L
+Lexi Foxy / Vera King
 Lola Luscious - Anya Gold
 
 ### M
+Maserati XXX / Maserati
 Mattie Borders - Jessie Parker (Jessica Parker is a poor dupe on FO)
 Miss Goldie / Goldie Glock
 
@@ -1242,4 +1256,15 @@ Polly Pons - Poopea
 Red Fox - Michelle H
 
 ### S
+Sailor Luna / Rebecca Vanguard
+Scarlet Sade / Scarlet de Sade
+Sea J Raw / Sea J. Raw
+Selena Rose - Selena Santana
 Shay Evans / Gia Milana
+Stephie Staar - Stephie Starr
+
+### T
+Trinity St Clair / Trinity St. Clair
+
+### W
+Wednesday Parker / Abbie Maley
