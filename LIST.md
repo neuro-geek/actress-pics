@@ -213,6 +213,7 @@ Bailey Bradshaw
 Bailey Brooke
 Bambi Blacks
 Beata Undine
+Bella Rolland
 Belladonna
 Bellah Dahl
 Belle Noire
@@ -220,6 +221,7 @@ Bianka Lovely
 Bibi Jones
 Blair Williams
 Blake Eden
+Blake Morgan
 Blanche Bradburry
 Blaten Lee
 Blondie Fesser
@@ -229,6 +231,7 @@ Bobbi Star
 Bonnie Rose
 Bonnie Rotten
 Brandi Love
+Brandy Aniston
 Breanna Sparks
 Bree Daniels
 Bree Olsen
@@ -240,6 +243,7 @@ Briar Rose
 Brice Bardot
 Bridgette B
 Briella Bounce
+Britney Amber
 Britney Brighton
 Britney Light
 Brittany Andrews
