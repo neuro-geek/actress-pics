@@ -952,6 +952,7 @@ Pristine Edge
 Priya Rai
 Proxy Paige
 Puma Swede
+Priya Price
 
 ### Q
 Quinn Wilde
@@ -960,7 +961,11 @@ Quinn Wilde
 Rachael Cavalli
 Rachel James
 Rachel Roxxx
+Rachele Richey
 Rain Summers
+Randi Wright
+Raquel Roper
+Raven Bay
 Raven Hart
 Raven Riley
 Raylin Ann
@@ -970,11 +975,13 @@ Rebecca Volpetti
 Rebel Lynn
 Red Fox
 Reena Sky
+Regan Reese
 Remy LaCroix
 Rharri Rhound
 Ria Sunn
 Richelle Ryan
 Rikki Rumor
+Rikki Six
 Riley Jenner
 Riley King
 Riley Mae
@@ -992,12 +999,17 @@ Rose Monroe
 Roxy Nicole
 Roxy Raye
 Ryan Keely
+Ryan Riesling
 Rylie Richman
 
 ### S
 Sabina Rouge
 Sabrina Banks
 Sadie Blake
+Sadie Holmes
+Sadie Santana
+Sadie Swede
+Sailor Luna
 Samantha Bentley
 Samantha Hayes
 Samantha Parker
@@ -1008,24 +1020,32 @@ Sami White
 Sammie Daniels
 Sammie Rhodes
 Sara Luvv
+Sarah Jessie
 Sarah McDonald
 Sarah Sultry
 Sarah Vandella
 Sasha Grey
 Sasha Hall
 Sasha Heart
+Sasha Summers
 Satin Bloom
 Satine Phoenix
 Satine Spark
+Savana Styles
+Savannah Fox
 Savannah Stern
 Savannah Stevens
 Saya Song
 Scarlet Red
+Scarlet Sade
 Scarlett Sage
+Sea J Raw
 Selena Rose
 Selena Vargas
 Selvaggia
 Sensi Pearl
+Sensual Jane
+September Reign
 Serena Avary
 Serena Blair
 Shae Celestine
