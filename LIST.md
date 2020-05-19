@@ -1128,6 +1128,9 @@ Isabella Taylor / Isabella DeSantos - Isabella De Santos
 ### K
 Krystal Boyd / Abbie - Anjelica
 
+### L
+Lola Luscious - Anya Gold
+
 ### M
 Mattie Borders - Jessie Parker (Jessica Parker is a poor dupe on FO)
 Miss Goldie / Goldie Glock
