@@ -1176,6 +1176,7 @@ Violette Pure
 Vyxen Steel
 
 ### W
+Wednesday Parker
 Wendy Moon
 Whitney Westgate
 Whitney Wright
