@@ -1,5 +1,49 @@
 ## Log
 
+## 2020-05-21
+#### Removed
+* cyrstal-rae.jpg
+* Ella Hughes 2
+* emily willis - tushy.jpg
+* Jade Kush 1
+
+#### Replaced
+* WEBP's missing numbering
+* Kendra Sunderland 1
+* Kennedy Kressler 1
+* Kimberly Brix 1
+* Gina Gerson 5
+* Serena Avary 2
+* Naomi Swann 1
+* Lena Paul 11
+* Casey Calvert 4
+* Anastasia Knight 2
+* Abella Danger 1
+* Avi Love 3
+* Adriana Chechik 5
+* Anny Aurora 2
+* Adria Rae 7
+* Carolina Sweets 5
+* Joanna Angel 6
+* Karmen Karma 2
+* Rebel Lynn 3
+* Riley Reid 80
+* Riley Steele 3
+* Vicki Chase 1
+* Vina Sky 1
+
+#### Renamed
+* Added missing numbering for Blacked/Tushy/Vixen portraits
+* Blair Williams, fixed numbering
+* Blake Eden, fixed numbering
+* Bree Daniels, fixed numbering
+* Ana Bell Evans - Anabelle to Ana Bell Evans
+* Chloe Couture - Chloe Cherry to Chloe Couture
+* Krystal Boyd - Abbie - Anjelica to Krystal Boyd
+* Miss Goldie - Goldie Glock to Miss Goldie
+* Polly Pons - Poopea to Polly Pons
+* Red Fox - Michelle H to Red Fox
+
 ## 2020-05-19
 #### Added - Spizoo
 * Aaliyah Love 9
