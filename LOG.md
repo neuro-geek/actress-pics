@@ -1,5 +1,9 @@
 ## Log
 
+## 2020-05-26
+#### Added
+* Sarah Cute 1-6
+
 ## 2020-05-22
 #### Added - Spizoo
 * Laney Grey 1
