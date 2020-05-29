@@ -1,5 +1,9 @@
 ## Log
 
+## 2020-05-29
+#### Added
+* Kaiia Eve
+
 ## 2020-05-27
 #### Added
 * Aali Rousseau 1-6
