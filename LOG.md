@@ -1,5 +1,15 @@
 ## Log
 
+## 2020-05-27
+#### Added
+* Aali Rousseau 1-6
+* Brooklyn Gray 1-5
+* Emma Snow 2
+* Veronica Avluv 2-3
+
+#### Replaced
+* Emma Snow 1
+
 ## 2020-05-26
 #### Added
 * Sarah Cute 1-6
