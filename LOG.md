@@ -1,5 +1,10 @@
 ## Log
 
+## 2020-06-16
+#### Added
+* Bambi Black 1-6
+* Scarlett Pain 1-9
+
 ## 2020-05-29
 #### Added
 * Kaiia Eve
