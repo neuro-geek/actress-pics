@@ -1,5 +1,187 @@
 ## Log
 
+## 2020-06-17
+#### Added
+* Aaliyah Love 10-11
+* Abella Danger 5
+* Abigail Mac 15-17
+* Adrenalynn 5-6
+* Adriana Chechik 14-16
+* Aidra Fox 7
+* Alektra Blue 2-3
+* Alexa Grace 7-8
+* Alexis Fawx 21
+* Alexis Texas 5
+* Alina Lopez 3-4
+* Ana Foxxx 8-9
+* Angela White 5-6
+* Anna Bell Peaks 21
+* April O'Neil 6-7
+* April Snow 2-3
+* Aria Alexander 4-5
+* Ariana Marie 25-27
+* Asa Akira 8-9
+* Athena Faris 2-3
+* Avi Love 4-5
+* Bibi Jones 3
+* Blair Williams 10-11
+* Bobbi Starr 10-11
+* Bonnie Rotten 14-16
+* Brandi Love 12-13
+* Bree Daniels 15-16
+* Brianna Love 7
+* Britney Amber 2-3
+* Cadence Lux 5-6
+* Cali Carter 3-4
+* Carolina Sweets 7-8
+* Casey Calvert 14-15
+* Cassidy Banks 5-6
+* Chanel Preston 21-22
+* Charlotte Stokely 4-5
+* Cory Chase 4-5
+* Dana DeArmond 6-7
+* Dani Jensen 2-3
+* Dava Foxx 11-12
+* Demi Sutra 3-4
+* Diamond Foxxx 2
+* Dylan Ryder 2
+* Eliza Ibarra 3-4
+* Ella Hughes 5-6
+* Ella Nova 3-4
+* Elsa Jean 6-7
+* Emily Willis 5-6
+* Emma Hix 7-8
+* Georgia Jones 2-3
+* Gia Paige 2-3
+* Gianna Dior 2-3
+* Gina Valentina 9-10
+* Heather Starlet 3
+* Honey Gold 4
+* India Summer 20-21
+* Jade Baker 8-9
+* Jane Wilde 5-6
+* Jay Taylor 4 (dupe-ish)
+* Jenna Haze 2
+* Jennifer White 4
+* Jesse Jane 2-3
+* Jessica Rex 2
+* Jessie Lee 4
+* Jia Lissa 3
+* Jill Kassidy 3
+* Juelz Ventura 2-3
+* Julia Ann 3
+* Jynx Maze 12
+* Karla Kush 6-7
+* Kat Dior 2
+* Katie Morgan 17-18
+* Katrina Jade 6-7
+* Katsuni 6
+* Katya Rodriguez 2-3
+* Kayden Kross 3
+* Kendra Lust 5
+* Kenzie Reeves 5-6
+* Kenzie Taylor 6-7
+* Kiara Cole 2-3
+* Kissa Sins 3-4
+* Kleio Valentien 3-4
+* Lauren Phillips 7-10
+* Lena Paul 13-14
+* Lexi Belle 15-16
+* Lexi Lore 14
+* Lexi Luna 2-3
+* Lexxi Tyler 2
+* Lily Love 3-4
+* Lisa Ann 17-18
+* Little Caprice 5-6
+* Liya Silver 3
+* Luna Star 4-5
+* Lyra Law 4
+* Mackenzie Moss 12-13
+* Maitland Ward 9-10
+* Marie McCray 10-11
+* Memphis Monroe 2
+* Mia Malkova 4-5
+* Mona Wales 2-3
+* Monique Alexander 4-5
+* Naomi Swann 3-4
+* Natalia Starr 5
+* Nicole Aniston 4-5
+* Nikki Benz 3-4
+* Nina North 2-3
+* Olive Glass 2-3
+* Paige Owens 8-9
+* Penny Pax 7-8
+* Priya Rai 2
+* Rachael Cavalli 3-4
+* Reagan Foxx 5-6
+* Rebecca Volpetti 2-3
+* Riley Reid 83-84
+* Riley Reyes 6-7
+* Riley Steele 4-5
+* Romi Rain 4-5
+* Ryan Keely 19-20
+* Samantha Saint 2-3
+* Sammie Rhodes 3
+* Sarah Vandella 7
+* Sasha Grey 8
+* Scarlett Pain 10-11
+* Scarlett Sage 4-5
+* Serena Blair 2-3
+* Shawna Lenee 3
+* Shay Jordan 2
+* Sheena Ryder 5-6
+* Silvia Sage 5-6
+* Skin Diamond 4-5
+* Sophia Santi 2
+* Sophie Dee 3-4
+* Stoya 3
+* Syren De Mer 5
+* Tiffany Tatum 4-5
+* Veronica Avluv 4-5
+* Veruca James 3-4
+* Vicki Chase 5
+* Victoria Voxxx 4-5
+* Whitney Wright 2-3
+
+* Anastasia Brokelyn 1-2
+* Angie Savage 1
+* Ann Himukai
+* Arietta Adams 1-2
+* Ayda Swinger 1-2
+* Becky Bandini 1
+* Camryn Kiss 1
+* Chanel Santini 1
+* Chloe Temple 1-2
+* Ellie Eilish 1
+* Gabbie Carter 1-2
+* Gina Lynn 1
+* Jessica Drake 1
+* Julia Bond 1-2
+* Katie Monroe 1-2
+* Kendra James 1-2
+* Kimberly Kane 1-2
+* Lacy Lennon 1-2
+* Lana Roy 1-2
+* Luna Lain 1-2
+* Mary Moody 1-3
+* Nautica Thorn 1
+* Oxana Chic 1-2
+* Rachael Madori 1-2
+* Savannah Sixx 1
+* Sovereign Syre 1
+* Teagan Presley 1
+* Tina Kay 1-2
+* Violet Myers 1-2
+
+#### Removed
+* Bobbi Starr 7.bg
+
+#### Replaced
+* Gina Gerson 1
+
+#### Renamed
+* Bobbi Star -> Bobbi Starr
+
 ## 2020-06-16
 #### Added
 * Bambi Black 1-6
