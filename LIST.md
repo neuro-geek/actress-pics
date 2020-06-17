@@ -448,6 +448,7 @@ Frida Sante
 Frida Stark
 
 ### G
+Gabbie Carter
 Gabby Quinteros
 Gabriella Paltrova
 Genevieve Sinn
