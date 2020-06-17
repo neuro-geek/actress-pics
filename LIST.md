@@ -323,6 +323,7 @@ Chloe Carter
 Chloe Couture
 Chloe Foster
 Chloe Scott
+Chloe Temple
 Christiana Cinn
 Christie Stevens
 Christy Love
