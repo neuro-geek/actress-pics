@@ -786,6 +786,7 @@ Lucy Heart
 Lucy Li
 Ludella Hahn
 Luna Corazon
+Luna Lain
 Luna Lovely
 Luna Rival
 Luna Star
