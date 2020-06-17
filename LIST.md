@@ -305,6 +305,7 @@ Cedella Kors
 Celeste Star
 Celestia Vega
 Chanel Preston
+Chanel Santini
 Chanel Shortcake
 Chanell Heart
 Charity Bangs
