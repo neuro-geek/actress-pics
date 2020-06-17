@@ -987,18 +987,21 @@ Quinn Wilde
 
 ### R
 Rachael Cavalli
+Rachael Madori
 Rachel James
 Rachel Roxxx
 Rachele Richey
 Rain Summers
 Randi Wright
 Raquel Roper
+Raven Alexis
 Raven Bay
 Raven Hart
 Raven Riley
 Raylin Ann
 Reagan Foxx
 Rebeca Taylor
+Rebecca More
 Rebecca Volpetti
 Rebel Lynn
 Red Fox
