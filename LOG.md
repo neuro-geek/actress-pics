@@ -1,5 +1,16 @@
 ## Log
 
+## 2020-06-18
+#### Added
+* Eliza Ibarra 5-12
+* Kendra James 3-7
+* Nikki Benz 5-7
+* Nina Dolci 1
+* Zoey Monroe 5-8
+
+#### Removed
+* Zoey Monroe 5-6
+
 ## 2020-06-17
 #### Added
 * Aaliyah Love 10-11
