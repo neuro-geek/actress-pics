@@ -1,6 +1,6 @@
 ---
 name: Add
-about: Request the addition of an actress or pictures an existing one.
+about: Request the addition of an actress or pictures of an existing one.
 title: "[ADD]"
 labels: ''
 assignees: ''
