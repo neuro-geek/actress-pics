@@ -1,5 +1,12 @@
 ## Log
 
+## 2020-06-19
+#### Added
+* Alina Lopez 5-6
+
+#### Removed
+* Riley Reid 1-76
+
 ## 2020-06-18
 #### Added
 * Eliza Ibarra 5-12
