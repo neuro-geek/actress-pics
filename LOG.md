@@ -3,6 +3,7 @@
 ## 2020-06-20
 #### Added
 * Carter Cruise 6-8
+* Serena Blair 4
 
 ## 2020-06-19
 #### Added
