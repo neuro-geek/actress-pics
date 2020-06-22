@@ -1,5 +1,9 @@
 ## Log
 
+## 2020-06-22
+#### Added
+* Alina Lopez 7-8
+
 ## 2020-06-20
 #### Added
 * Carter Cruise 6-8
