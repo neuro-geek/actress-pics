@@ -2,9 +2,12 @@
 
 ## 2020-06-23
 #### Added
+* Emma Butt 1
 * Sara Luvv 3-10
 * Tigerr Benson 1-2
-* Emma Butt 1
+
+#### Added - Spizoo
+* Cherie DeVille 6
 
 ## 2020-06-22
 #### Added
