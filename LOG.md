@@ -8,6 +8,7 @@
 
 #### Added - Spizoo
 * Cherie DeVille 6
+* Daphne Dare 2
 
 ## 2020-06-22
 #### Added
