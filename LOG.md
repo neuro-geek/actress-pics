@@ -3,6 +3,7 @@
 ## 2020-06-23
 #### Added
 * Sara Luvv 3-10
+* Tigerr Benson 1-2
 
 ## 2020-06-22
 #### Added
