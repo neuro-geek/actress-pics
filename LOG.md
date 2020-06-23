@@ -5,6 +5,7 @@
 * Emma Butt 1
 * Sara Luvv 3-10
 * Tigerr Benson 1-2
+* Jessie Rogers 1-11
 
 #### Added - Spizoo
 * Cherie DeVille 6
