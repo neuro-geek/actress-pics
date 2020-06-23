@@ -1,5 +1,9 @@
 ## Log
 
+## 2020-06-23
+#### Added
+* Sara Luvv 3-10
+
 ## 2020-06-22
 #### Added
 * Alina Lopez 7-8
