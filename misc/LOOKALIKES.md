@@ -24,7 +24,7 @@
  - 
  - 
  - 
- - 
+Jessie Andrews - Riley Star
 Abigaile Johnson – Anna Kendrick
 Adriana Chechik - Adriana Lima
 Aleska Diamond - Miley Cyrus
