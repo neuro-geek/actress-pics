@@ -4,6 +4,7 @@
 #### Added
 * Sara Luvv 3-10
 * Tigerr Benson 1-2
+* Emma Butt 1
 
 ## 2020-06-22
 #### Added
