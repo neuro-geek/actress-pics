@@ -14,6 +14,9 @@
 * Natalie Brooks 1
 * Petra Blair 1
 
+#### Removed
+* Jessie Rogers 1-13 (all)
+
 ## 2020-06-22
 #### Added
 * Alina Lopez 7-8
