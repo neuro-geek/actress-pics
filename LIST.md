@@ -1265,6 +1265,7 @@ Busty Sarai / Sarai - Alex Allen - Sarai Keef
 
 ### C
 Carlota Teen / Penelope Cum
+Charley Chaplin / Sahara Skye
 Chloe Couture / Chloe Cherry
 
 ### D
@@ -1303,12 +1304,12 @@ Polly Pons - Poopea
 Red Fox - Michelle H
 
 ### S
-Charley Chaplin / Sahara Skye
 Sailor Luna / Rebecca Vanguard
 Scarlet Sade / Scarlet de Sade
 Sea J Raw / Sea J. Raw
 Selena Rose - Selena Santana
 Shay Evans / Gia Milana
+Shaye Bennet / Jasmine Wolff
 Stephie Staar - Stephie Starr
 
 ### T
