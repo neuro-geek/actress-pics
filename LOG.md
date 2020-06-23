@@ -12,6 +12,7 @@
 * Jenna J Foxxx 5
 * Mandy Meadows 2
 * Natalie Brooks 1
+* Petra Blair 1
 
 ## 2020-06-22
 #### Added
