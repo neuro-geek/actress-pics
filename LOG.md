@@ -1,5 +1,9 @@
 ## Log
 
+## 2020-06-25
+#### Added
+* Jade Jantzen 6-10
+
 ## 2020-06-23
 #### Added
 * Ava Addams 6-7
