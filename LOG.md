@@ -2,10 +2,17 @@
 
 ## 2020-06-23
 #### Added
+* Ava Addams 6-7
+* Dolly Leigh 4-5
 * Emma Butt 1
+* Ivy Lebelle 7-8
+* Jessie Rogers 1-11
+* Maya Kendrick 4-5
+* Nadya Nabakova 2-3
+* Natasha Nice 4-5
+* Phoenix Marie 5-6
 * Sara Luvv 3-10
 * Tigerr Benson 1-2
-* Jessie Rogers 1-11
 
 #### Added - Spizoo
 * Cherie DeVille 6
