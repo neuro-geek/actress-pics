@@ -5,6 +5,9 @@
 * Jade Jantzen 6-10
 * Vyxen Steel 3-6
 
+#### Renamed
+* Vienna Rose -> Katie Sloane
+
 ## 2020-06-23
 #### Added
 * Ava Addams 6-7

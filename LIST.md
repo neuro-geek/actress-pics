@@ -631,6 +631,7 @@ Kate Kennedy
 Katerina Kay
 Katie Monroe
 Katie Morgan
+Katie Sloane
 Katrina Jade
 Katsuni
 Katt Garcia
@@ -1209,7 +1210,6 @@ Victoria Vargaz
 Victoria Voxxx
 Victoria White
 Vienna Black
-Vienna Rose
 Vina Sky
 Vinna Reed
 Violet Monroe
@@ -1287,6 +1287,7 @@ Jenna J Foxx / Jenna Foxx
 
 ### K
 Kali Renee / Riley Anne
+Katie Sloane / Vienna Rose
 Krystal Boyd / Abbie - Anjelica
 
 ### L
