@@ -3,6 +3,7 @@
 ## 2020-06-25
 #### Added
 * Jade Jantzen 6-10
+* Vyxen Steel 3-6
 
 ## 2020-06-23
 #### Added
