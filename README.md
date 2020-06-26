@@ -1,5 +1,6 @@
 ### WIP
  * Redoing older images to 2:3 format and higher res, from 591 x 1000 px
+ * Renaming older images to follow the new naming convention.
 
 ### Naming
 Images were originally named `Actress Name #.jpg`
