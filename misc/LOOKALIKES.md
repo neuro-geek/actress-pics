@@ -1,7 +1,7 @@
+Pornstars on the left, other pornstar or celebrity on the right.
+### Lookalikes
 
 
-
-* Jessie Andrews - Riley Star
 * Abigaile Johnson – Anna Kendrick
 * Adriana Chechik - Adriana Lima
 * Aleska Diamond - Miley Cyrus
@@ -44,6 +44,7 @@
 * Jelena Jensen - Gal Gadot
 * Jennifer Stone - Jennifer Aniston
 * Jessa Rhodes - Paige van Zant
+* Jessie Andrews - Riley Star
 * Joanna Angel - Sarah Silverman
 * Kagney Linn Karter - Hillary Duff 
 * Kelly Wells - Lady Gaga
@@ -84,26 +85,3 @@
 * Tyra Banxxx - Tyra Banks
 * Victoria Rae Black - Stop Girl
 * Yulka - Chistina Hendricks
- - 
- - 
- - 
- - 
- - 
- - 
- - 
- - 
- - 
- - 
- - 
- - 
- - 
- - 
- - 
- - 
- - 
- - 
- - 
- - 
- - 
- - 
- - 
