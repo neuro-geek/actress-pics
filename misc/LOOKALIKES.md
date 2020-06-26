@@ -69,7 +69,6 @@ Pornstars on the left, other pornstar or celebrity on the right.
 * Molly Bennett - Aly Michalka
 * Naomi Woods - Emilia Clarke
 * Natalia Starr - Sophie Turner
-* Pornstars that look like celebrities or other pornstars
 * Raylene - Kamala Haris
 * Riley Steele - Jamie Presley
 * Sasha Bonilova - Taylor Swift
