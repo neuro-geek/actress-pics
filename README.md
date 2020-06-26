@@ -1,8 +1,13 @@
 ### WIP
  * Redoing older images to 2:3 format and higher res, from 591 x 1000 px
- * Might add
-    [NN / Breasts / Bush / Facial]
-    [Full / Hip-Waist / Ass / Bust / Portrait]
+
+### Naming
+Images were originally named `Actress Name #.jpg`
+
+Newer images will now be according to `Actress Name_Set#_Crop_Pose.jpg`
+Where Crop is either Face, Bust or 3Q (three-quarters).
+And Pose is either Front, Side or Back.
+More might be added if needed.
 
 ### Notes
 
