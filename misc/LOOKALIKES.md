@@ -71,6 +71,7 @@ Pornstars on the left, other pornstar or celebrity on the right.
 * Natalia Starr - Sophie Turner
 * Pornstars that look like celebrities or other pornstars
 * Raylene - Kamala Haris
+* Riley Steele - Jamie Presley
 * Sasha Bonilova - Taylor Swift
 * Serena Blair - Alex Coal
 * Sophie Dee - Hannah Minx
