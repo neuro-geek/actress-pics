@@ -4,9 +4,10 @@
 ### Naming
 Images were originally named `Actress Name #.jpg`
 
-Newer images will now be according to `Actress Name_Set#_Crop_Pose.jpg`
-Where Crop is either Face, Bust or 3Q (three-quarters).
-And Pose is either Front, Side or Back.
+Newer images will now be according to `Actress Name_Set#_Crop_Pose_State.jpg`
+Crop is either Face, Bust or 3Q (three-quarters).
+Pose is either Front, Side or Back.
+State is either NN (non-nude), Topless or Nude.
 More might be added if needed.
 
 ### Notes
