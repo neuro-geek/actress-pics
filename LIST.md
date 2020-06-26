@@ -803,7 +803,7 @@ Lyra Lockhart
 ### M
 Mackenzee Pierce
 Mackenzie Moss
-Maddy O'Reilly
+Maddy Oreilly
 Madelyn Marie
 Madelyn Monroe
 Madison Hart
@@ -1297,6 +1297,7 @@ Liv Revamped - Liv Aguilera
 Lola Luscious - Anya Gold
 
 ### M
+Maddy Oreilly / Maddy O'Reilly
 Maria Antonella / LaSirena69 - Antonella La Sirena
 Maserati XXX / Maserati
 Mattie Borders - Jessie Parker (Jessica Parker is a poor dupe on FO)
