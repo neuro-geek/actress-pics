@@ -1,15 +1,17 @@
 ### WIP
  * Redoing older images to 2:3 format and higher res, from 591 x 1000 px
+ * Phasing out the modern vixen shots (620x1060 px)
  * Renaming older images to follow the new naming convention.
 
 ### Naming
 Images were originally named `Actress Name #.jpg`
 
 Newer images will now be according to `Actress Name_Set#_Crop_Pose_State.jpg`
-Crop is either Face, Bust or 3Q (three-quarters).
+Crop is either Face, Bust or 3Q (three-quarters). 
 Pose is either Front, Side or Back.
 State is either NN (non-nude), Topless or Nude.
-More might be added if needed.
+
+Will be replaced by a another doc.
 
 ### Notes
 
