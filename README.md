@@ -21,8 +21,6 @@ The names listed should be the ones listed on FreeOnes with the alias usually be
 
 [Table of actresses.](./TABLE.md) Done as a test.
 
-[Update log of images.](./LOG.md) If I can remember to keep it up to date.
-
 ### Contributors
 * _Kenny40
 * Carlium
