@@ -1,5 +1,7 @@
 ## Log
 
+End of log for now.
+
 ## 2020-06-25
 #### Added
 * Jade Jantzen 6-10
