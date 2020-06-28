@@ -44,4 +44,4 @@ The Exception to this are themed images. C for Christmas, H for Halloween, and X
 * Nude, exposed bust and pubic region
 
 ### Number
-When there's multiple images with all the previous tags being identical, mainly for ungrouped images.
+Optional, use when there's multiple images with all the previous tags being identical, mainly for ungrouped images.
