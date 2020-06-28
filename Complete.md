@@ -1,8 +1,8 @@
-### Sources merged in
+## Sources merged in
 * Old Blacked, Tushy, Vixen profile pics
 * Spizoo up until 2020-06-23
 
-### Stars & Sets in the new format
+## Stars & Sets in the new format
 * Aali-Rosseau
 * Aaliyah Hadid 2
 * Aaliyah Love 2
