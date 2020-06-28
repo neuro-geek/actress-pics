@@ -6,12 +6,13 @@
 ### Naming
 Images were originally named `Actress Name #.jpg`
 
-Newer images will now be according to `Actress Name_Set#_Crop_Pose_State.jpg`
-Crop is either Face, Bust or 3Q (three-quarters). 
-Pose is either Front, Side or Back.
+Newer images will now be according to `Actress-Name_Set_Crop_Pose_State_Number.jpg`
+Crop defines parts of the subject included in the image. 
+Pose is either Front, Side, Back, or sitting.
 State is either NN (non-nude), Topless or Nude.
+Number is only added when need to further differentiate.
 
-Will be replaced by a another doc.
+[More info on structure and naming here.](./SCHEMA.md)
 
 ### Notes
 
