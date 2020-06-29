@@ -6,6 +6,7 @@
 * Aali Rosseau
 * Aaliyah Hadid 2
 * Aaliyah Love 2
+* Alexis Texas 3
 * Allie Haze
 * Anastasia Morna
 * Angela White 2
