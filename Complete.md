@@ -3,7 +3,7 @@
 * Spizoo up until 2020-06-23
 
 ## Stars & Sets in the new format
-* Aali-Rosseau
+* Aali Rosseau
 * Aaliyah Hadid 2
 * Aaliyah Love 2
 * Allie Haze
