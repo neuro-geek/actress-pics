@@ -8,12 +8,15 @@
 * Aaliyah Love 2
 * Allie Haze
 * Anastasia Morna
+* Angela White 2
 * Ariana Marie 4
 * Ava Little
 * Capri Cavanni
 * Dani Daniels
 * Gigi Allens
+* Gina Valentina 3
 * Ivy Lebelle
+* Ivy Wolfe 
 * Jennifer Jacobs
 * Jesse Jane 2
 * Jessie Rogers
