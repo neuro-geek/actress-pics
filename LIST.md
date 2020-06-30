@@ -752,7 +752,7 @@ Lily Adams
 Lily Cade
 Lily Glee
 Lily Jordan
-Lily Labeau
+Lily LaBeau
 Lily Lane
 Lily Love
 Lily Rader
@@ -1292,6 +1292,7 @@ Katie Sloane / Vienna Rose
 Krystal Boyd / Abbie - Anjelica
 
 ### L
+Lily LaBeau / Lily Labeau
 Lexi Foxy / Vera King
 Lina Paige - Billi Ann
 Liv Revamped - Liv Aguilera
@@ -1314,6 +1315,7 @@ Polly Pons - Poopea
 Red Fox - Michelle H
 
 ### S
+Sara St Clair / Sara St. Clair
 Sailor Luna / Rebecca Vanguard
 Scarlet Sade / Scarlet de Sade
 Sea J Raw / Sea J. Raw
