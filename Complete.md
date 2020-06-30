@@ -26,6 +26,7 @@
 * Jessie Rogers
 * Julia Bond
 * Jynx Maze 2
+* Katrina Jade
 * Kayden Kross
 * Kendall Karson
 * Kleio Valentien 2
