@@ -36,3 +36,4 @@
 * Stoya
 * Tana Lea
 * Tasha Reign
+* Veruca James
