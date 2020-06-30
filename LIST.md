@@ -1292,8 +1292,8 @@ Katie Sloane / Vienna Rose
 Krystal Boyd / Abbie - Anjelica
 
 ### L
-Lily LaBeau / Lily Labeau
 Lexi Foxy / Vera King
+Lily LaBeau / Lily Labeau
 Lina Paige - Billi Ann
 Liv Revamped - Liv Aguilera
 Lola Luscious - Anya Gold
