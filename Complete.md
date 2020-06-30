@@ -21,6 +21,7 @@
 * Jennifer Jacobs
 * Jesse Jane 2
 * Jessie Rogers
+* Julia Bond
 * Jynx Maze 2
 * Kayden Kross
 * Kendall Karson
