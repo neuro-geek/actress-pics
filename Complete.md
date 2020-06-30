@@ -15,6 +15,7 @@
 * Ava Little
 * Bonnie Rotten 
 * Capri Cavanni
+* Cassidy Banks
 * Dani Daniels
 * Gigi Allens
 * Gina Valentina 3
