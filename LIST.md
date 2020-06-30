@@ -1292,6 +1292,7 @@ Katie Sloane / Vienna Rose
 Krystal Boyd / Abbie - Anjelica
 
 ### L
+Lacy Spice / Kayla Kayden
 Lexi Brooks / Giselle Leon
 Lexi Foxy / Vera King
 Lily LaBeau / Lily Labeau
