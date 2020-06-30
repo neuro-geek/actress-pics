@@ -467,7 +467,6 @@ Gina Gerson
 Gina Lynn
 Gina Valentina
 Ginger Banks
-Giselle Leon
 Giselle Mari
 Giselle Palmer
 Gracie Glam
@@ -734,6 +733,7 @@ Lena Paul
 Lena Reif
 Lennox Luxe
 Lexi Belle
+Lexi Brooks
 Lexi Dona
 Lexi Foxy
 Lexi Lore
@@ -1292,6 +1292,7 @@ Katie Sloane / Vienna Rose
 Krystal Boyd / Abbie - Anjelica
 
 ### L
+Lexi Brooks / Giselle Leon
 Lexi Foxy / Vera King
 Lily LaBeau / Lily Labeau
 Lina Paige - Billi Ann
