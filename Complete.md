@@ -41,3 +41,4 @@
 * Tana Lea
 * Tasha Reign
 * Veruca James
+* Whitney Wright
