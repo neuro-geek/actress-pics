@@ -19,7 +19,9 @@
 * Cassidy Banks
 * Dani Daniels
 * Gigi Allens
+* Gina Gerson 2
 * Gina Valentina 3
+* Inga Devil
 * Ivy Lebelle
 * Ivy Wolfe 2
 * Jennifer Jacobs
