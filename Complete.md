@@ -19,6 +19,7 @@
 * Capri Cavanni
 * Cassidy Banks
 * Dani Daniels
+* Darcie Dolce 2
 * Gigi Allens
 * Gina Gerson 2
 * Gina Valentina 3
