@@ -34,6 +34,7 @@
 * Luna Lovely
 * Mia Malkova
 * Olive Glass 3
+* Piper Perri
 * Rachael Madori
 * Riley Steele
 * Siri
