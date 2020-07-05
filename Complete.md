@@ -29,6 +29,7 @@
 * Jennifer Jacobs
 * Jesse Jane 2
 * Jessie Rogers
+* Joanna Angel
 * Julia Bond
 * Jynx Maze 2
 * Katana Kombat
