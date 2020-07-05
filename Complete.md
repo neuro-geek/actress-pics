@@ -36,6 +36,7 @@
 * Katrina Jade
 * Kayden Kross
 * Kendall Karson
+* Kira Noir
 * Kleio Valentien 2
 * Lisa Ann
 * Luna Lovely
