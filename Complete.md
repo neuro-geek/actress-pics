@@ -38,6 +38,7 @@
 * Julia Bond
 * Jynx Maze 2
 * Katana Kombat
+* Kate England
 * Katrina Jade
 * Kayden Kross
 * Kendall Karson
