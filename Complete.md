@@ -57,5 +57,6 @@
 * Stoya
 * Tana Lea
 * Tasha Reign
+* Tia Cyrus
 * Veruca James
 * Whitney Wright
