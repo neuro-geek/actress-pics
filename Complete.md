@@ -21,6 +21,7 @@
 * Autumn Falls
 * Ava Little
 * Bonnie Rotten
+* Bridgette B
 * Britney Amber 2 
 * Capri Cavanni
 * Cassidy Banks
