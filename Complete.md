@@ -20,7 +20,8 @@
 * Ashly Anderson
 * Autumn Falls
 * Ava Little
-* Bonnie Rotten 
+* Bonnie Rotten
+* Britney Amber 2 
 * Capri Cavanni
 * Cassidy Banks
 * Dani Daniels
