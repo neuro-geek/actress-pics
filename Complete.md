@@ -28,6 +28,7 @@
 * Cassidy Banks
 * Dani Daniels
 * Darcie Dolce 2
+* Eliza Jane
 * Elsa Jean 2
 * Gigi Allens
 * Gina Gerson 2
