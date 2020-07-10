@@ -36,6 +36,7 @@
 * Gigi Allens
 * Gina Gerson 2
 * Gina Valentina 3
+* Giselle Palmer
 * Inga Devil
 * Ivy Lebelle
 * Ivy Wolfe 2
