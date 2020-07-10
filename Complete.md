@@ -68,6 +68,7 @@
 * Mia Malkova
 * Molly Stewart
 * Olive Glass 3
+* Parker Swayze
 * Piper Perri
 * Rachael Madori
 * Riley Steele
