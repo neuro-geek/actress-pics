@@ -29,7 +29,7 @@
 * Britney Amber 2 
 * Capri Cavanni
 * Cassidy Banks
-* Chloe Carter 3
+* Chloe Carter 5
 * Dani Daniels
 * Darcie Dolce 2
 * Eliza Jane
