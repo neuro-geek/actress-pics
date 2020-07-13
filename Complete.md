@@ -12,7 +12,7 @@
 * Aidra Fox 3
 * Alexa Nova
 * Alexis Fawx 6
-* Alexis Texas 3
+* Alexis Texas 4
 * Allie Haze
 * Anastasia Morna
 * Angela White 2
