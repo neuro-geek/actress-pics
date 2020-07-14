@@ -13,6 +13,7 @@
 * Aidra Fox 3
 * AJ Applegate
 * Alessandra Jane
+* Alex Harper 2
 * Alexa Nova
 * Alexis Fawx 6
 * Alexis Texas 4
