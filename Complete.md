@@ -89,3 +89,5 @@
 * Tia Cyrus
 * Veruca James
 * Whitney Wright
+* Yhivi 2
+* Zoey Monroe 3
