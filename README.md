@@ -3,6 +3,16 @@
  * Phasing out the modern vixen shots (620x1060 px)
  * Renaming older images to follow the new naming convention.
 
+
+### Notes
+
+The names listed should be the ones listed on FreeOnes with the alias usually being the IAFD name.
+
+[List of actresses.](./LIST.md)
+
+These images are intended to be generic and platform agnostics, and they happen to work pretty well in [Stash](https://github.com/stashapp/stash/).
+The widescreen are provided for fun and will hopefully be of more use in the future.
+
 ### Naming
 Images were originally named `Actress Name #.jpg`
 
@@ -15,14 +25,6 @@ State is either NN (non-nude), Topless or Nude.
 Number is only added when need to further differentiate.
 
 [More info on structure and naming here.](./SCHEMA.md)
-
-### Notes
-
-The names listed should be the ones listed on FreeOnes with the alias usually being the IAFD name.
-
-[List of actresses.](./LIST.md)
-
-[Table of actresses.](./TABLE.md) Done as a test.
 
 ### Contributors
 * _Kenny40
