@@ -44,10 +44,11 @@
 * Chloe Carter 6
 * Dani Daniels
 * Darcie Dolce 2
-* Eva Lovia
 * Eliza Jane
 * Elsa Jean 2
 * Emily Willis 2
+* Eva Angelina 2
+* Eva Lovia
 * Gianna Dior
 * Gigi Allens
 * Gina Gerson 2
