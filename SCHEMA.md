@@ -16,7 +16,7 @@ Resolution should be at least 1200 px high for portrait images, and 1280x720 px 
 ### Other
 Logos should not be visible.
 
-Avoid unnecessary space above the head.
+Avoid unnecessary space above the head. Between 5 and 15 pixels is good (on a 1200 px high image).
 
 ## Naming
 The structure is `Actress-Name_Set_Crop_Pose_State_Number.jpg`
