@@ -178,7 +178,6 @@ Ashlynn Brooke
 Ashlynn Rae
 Ashlynn Taylor
 Asia Carrera
-Aspen Ora
 Aspen Romanoff
 Astrid Star
 Asuna Fox
@@ -919,6 +918,7 @@ Natasha Voya
 Natasha White
 Natty Mellow
 Nautica Thorn
+Naveen Ora
 Nekane Sweet
 Nesty
 Nia Love
@@ -1313,6 +1313,7 @@ Miss Goldie / Goldie Glock
 
 ### N
 Nadya Nabakova / Bunny Colby
+Naveen Ora / Aspen Ora
 
 ### P
 Polly Pons - Poopea
