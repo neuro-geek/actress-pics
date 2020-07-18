@@ -23,6 +23,7 @@
 * Amber Ivy 2
 * Anastasia Morna
 * Angela White 2
+* Angelina Valentine
 * Anna Bell Peaks
 * Anna De Ville 2
 * Anny Aurora
@@ -33,6 +34,7 @@
 * Ashly Anderson
 * Ashlynn Brooke
 * Athena Palomino
+* Athena Rayne
 * Aubree Valentine
 * Autumn Falls
 * Ava Little
