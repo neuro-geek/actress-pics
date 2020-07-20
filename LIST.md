@@ -748,13 +748,13 @@ Leyla Fiore
 Lezley Zen
 Lilly Banks
 Lilly Ford
+Lilly Love
 Lily Adams
 Lily Cade
 Lily Glee
 Lily Jordan
 Lily LaBeau
 Lily Lane
-Lily Love
 Lily Rader
 Lina Paige
 Linda Sweet
@@ -1300,6 +1300,7 @@ Krystal Boyd / Abbie - Anjelica
 Lacy Spice / Kayla Kayden
 Lexi Brooks / Giselle Leon
 Lexi Foxy / Vera King
+Lilly Love / Lily Love (2012)
 Lily LaBeau / Lily Labeau
 Lina Paige - Billi Ann
 Liv Revamped - Liv Aguilera
