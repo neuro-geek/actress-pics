@@ -1263,9 +1263,9 @@ Aali Rousseau / Aali Kali
 Addison Ryder / Davina Davis
 Alana Cruise - Savannah Fyre
 Ana Bell Evans / Anabelle
-Angelica Taylor / August Taylor
 Anastasia Morna - Anna Morna
 Andi Rye / Zoe Sparx - Zoe Sparks
+Angelica Taylor / August Taylor
 Anikka Albrite - Annika Albrite
 Ann Marie / Ann Marie Rios
 
