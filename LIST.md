@@ -121,6 +121,7 @@ Angel Wicky
 Angela Kiss
 Angela Sommers
 Angela White
+Angelica Taylor
 Angelika Grays
 Angelina Armani
 Angelina Valentine
@@ -194,7 +195,6 @@ Aubrey Star
 Audrey Holiday
 Audrey Royal
 August Ames
-August Taylor
 Aurelly Rebel
 Aurielee Summers
 Austin Taylor
@@ -1263,6 +1263,7 @@ Aali Rousseau / Aali Kali
 Addison Ryder / Davina Davis
 Alana Cruise - Savannah Fyre
 Ana Bell Evans / Anabelle
+Angelica Taylor / August Taylor
 Anastasia Morna - Anna Morna
 Andi Rye / Zoe Sparx - Zoe Sparks
 Anikka Albrite - Annika Albrite
