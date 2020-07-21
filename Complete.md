@@ -6,11 +6,12 @@
 * Aali Rosseau
 * Aaliyah Hadid 2
 * Aaliyah Love 2
-* Abella Danger
+* Abella Danger 3
 * Abigail Mac 2
 * Addison Lee
-* Adria Rae
-* Aidra Fox 3
+* Adria Rae 5
+* Adriana Chechik 2
+* Aidra Fox 7
 * AJ Applegate
 * Alessa Savage
 * Alessandra Jane
@@ -33,9 +34,11 @@
 * Anna De Ville 2
 * Anny Aurora
 * Aria Alexander 3
-* Ariana Marie 4
+* Ariana Marie 7
 * Ariella Ferrera 2
 * Arya Fae
+* Asa Akira 5
+* Ashley Adams 4
 * Ashly Anderson
 * Ashlynn Brooke
 * Athena Palomino
@@ -43,6 +46,7 @@
 * Aubree Valentine
 * Autumn Falls
 * Ava Little
+* Bailey Brooke 2
 * Bonnie Rotten
 * Brandi Love 3
 * Bridgette B
@@ -60,8 +64,9 @@
 * Gianna Dior
 * Gigi Allens
 * Gina Gerson 2
-* Gina Valentina 3
+* Gina Valentina 5
 * Giselle Palmer
+* Holly Michaels 2
 * Inga Devil
 * Ivy Lebelle
 * Ivy Wolfe 2
@@ -74,6 +79,7 @@
 * Joanna Angel
 * Julia Bond
 * Jynx Maze 2
+* Karlee Grey 4
 * Katana Kombat
 * Kate England
 * Katie Morgan 2
@@ -83,16 +89,21 @@
 * Kendall Karson
 * Kira Noir
 * Kleio Valentien 2
-* Lena Paul 3
+* Lana Rhoades 4
+* Lena Paul 4
 * Lisa Ann
 * Luna Lovely
 * Madison Ivy
-* Mia Malkova
+* Melissa Moore 4
+* Mia Malkova 3
 * Molly Stewart
+* Natalia Starr 2
 * Olive Glass 3
 * Parker Swayze
 * Piper Perri
 * Rachael Madori
+* Rachel Starr 3
+* Riley Reid
 * Riley Steele
 * Sabina Rouge 3
 * Samantha Rone 4
