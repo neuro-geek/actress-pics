@@ -12,6 +12,7 @@
 * Adria Rae
 * Aidra Fox 3
 * AJ Applegate
+* Alessa Savage
 * Alessandra Jane
 * Alex Harper 2
 * ALexa Grace
@@ -20,10 +21,13 @@
 * Alexis Texas 4
 * Allie Haze
 * Alyssa Reece
+* Alyssia Kent
 * Amber Ivy 2
 * Anastasia Morna
 * Angela White 2
+* Angelica Raven 2
 * Angelina Valentine
+* Ann Marie 2
 * Anna Bell Peaks
 * Anna De Ville 2
 * Anny Aurora

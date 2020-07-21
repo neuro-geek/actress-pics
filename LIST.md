@@ -90,6 +90,7 @@ Alyssa Branch
 Alyssa Cole
 Alyssa Lynn
 Alyssa Reece
+Alyssia Kent
 Amai Liu
 Amanda Lane
 Amara Romani
@@ -121,6 +122,7 @@ Angel Wicky
 Angela Kiss
 Angela Sommers
 Angela White
+Angelica Raven
 Angelica Taylor
 Angelika Grays
 Angelina Armani
