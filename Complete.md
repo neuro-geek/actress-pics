@@ -115,6 +115,7 @@
 * Sabina Rouge 3
 * Samantha Rone 4
 * Sasha Grey 2
+* Selena Rose
 * Shyla Jennings 2
 * Siri
 * Stevie Shae
@@ -123,6 +124,7 @@
 * Tasha Reign
 * Tia Cyrus
 * Veruca James
+* Vicki Chase
 * Whitney Wright
 * Yhivi 2
 * Zoey Monroe 3
