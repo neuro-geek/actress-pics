@@ -100,6 +100,7 @@
 * Kimmy Granger 3
 * Kira Noir
 * Kleio Valentien 2
+* Kristen Scott 3
 * Lana Rhoades 4
 * Lena Paul 4
 * Lisa Ann
