@@ -60,6 +60,7 @@
 * Brandi Love 3
 * Bree Olsen
 * Brett Rossi 3
+* Briana Blair 3
 * Bridgette B
 * Britney Amber 2 
 * Capri Cavanni
