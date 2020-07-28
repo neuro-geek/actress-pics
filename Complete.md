@@ -17,7 +17,7 @@
 * Alessandra Jane
 * Alex Blake
 * Alex Harper 2
-* ALexa Grace
+* Alexa Grace
 * Alexa Nova
 * Alexis Fawx 6
 * Alexis Texas 4
@@ -94,7 +94,7 @@
 * Joanna Angel
 * Julia Bond
 * Jynx Maze 2
-* Karlee Grey 4
+* Karlee Grey 5
 * Kat Hunter
 * Katana Kombat
 * Kate England
