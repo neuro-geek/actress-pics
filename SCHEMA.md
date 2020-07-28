@@ -35,6 +35,8 @@ The Exception to this are themed images. C for Christmas, H for Halloween, and X
 * Bust, somewhere between the navel and bust, and up
 * Torso, above hips, below navel
 * 3Q, three-quarters view, about mid-thigh, and up
+* Sit, when you see the person sitting
+* Kneel, where you can see the knees touch the ground
 * Wide, for landscape images where the subject is in some horizontal position
 
 ### Pose
@@ -42,8 +44,6 @@ The Exception to this are themed images. C for Christmas, H for Halloween, and X
 * Front
 * Back
 * Side
-* Sit
-* Kneel
 
 #### Landscape:
 * Back, on her back
