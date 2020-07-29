@@ -4,7 +4,7 @@
 
 ## Stars & Sets in the new format
 * Aali Rosseau
-* Aaliyah Hadid 2
+* Aaliyah Hadid 3
 * Aaliyah Love 2
 * Abella Danger 3
 * Abigail Mac 2
