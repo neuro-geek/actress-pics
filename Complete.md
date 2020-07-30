@@ -113,7 +113,8 @@
 * Lela Star 8
 * Lisa Ann
 * Luna Lovely
-* Madison Ivy
+* Madison Ivy 2
+* Megan Rain 4
 * Melissa Moore 4
 * Mia Lelani
 * Mia Malkova 3
@@ -138,6 +139,7 @@
 * Tana Lea
 * Tasha Reign
 * Tia Cyrus
+* Valentina Nappi 4
 * Veruca James
 * Vicki Chase
 * Whitney Wright
