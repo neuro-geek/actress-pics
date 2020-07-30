@@ -103,6 +103,7 @@
 * Kayden Kross
 * Keisha Grey 3
 * Kendall Karson
+* Kendra James
 * Kimmy Granger 3
 * Kira Noir
 * Kleio Valentien 2
