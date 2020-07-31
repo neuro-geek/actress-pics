@@ -7,7 +7,7 @@
 * Aaliyah Hadid 3
 * Aaliyah Love 2
 * Abella Danger 3
-* Abigail Mac 2
+* Abigail Mac 4
 * Addison Lee
 * Adria Rae 5
 * Adriana Chechik 2
@@ -21,7 +21,7 @@
 * Alexa Nova
 * Alexis Fawx 6
 * Alexis Texas 4
-* Alina Lopez 1+3
+* Alina Lopez 5
 * Allie Haze
 * Alyssa Reece
 * Alyssia Kent
@@ -64,18 +64,20 @@
 * Bridgette B
 * Britney Amber 2 
 * Capri Cavanni
+* Carolina Sweets 4
 * Cassidy Banks
 * Chloe Carter 6
 * Dani Daniels
 * Darcie Dolce 2
 * Diamond Foxxx
+* Dillion Harper 5
 * Dyanna Lauren
 * Eliza Jane
 * Ellie Eilish
 * Elsa Jean 2
-* Emily Willis 2
+* Emily Willis 3
 * Eva Angelina 2
-* Eva Lovia
+* Eva Lovia 3
 * Gianna Dior
 * Gigi Allens
 * Gina Gerson 2
@@ -91,6 +93,7 @@
 * Jesse Jane 2
 * Jessie Andrews
 * Jessie Rogers
+* Jill Kassidy 3
 * Joanna Angel
 * Julia Bond
 * Jynx Maze 2
@@ -101,7 +104,7 @@
 * Katie Morgan 2
 * Katrina Jade
 * Kayden Kross
-* Keisha Grey 3
+* Keisha Grey 4
 * Kendall Karson
 * Kendra James
 * Kimmy Granger 3
@@ -111,6 +114,7 @@
 * Lana Rhoades 4
 * Lena Paul 4
 * Lela Star 8
+* Lilly Love 3
 * Lisa Ann
 * Luna Lovely
 * Madison Ivy 2
@@ -130,6 +134,7 @@
 * Riley Steele
 * Sabina Rouge 3
 * Samantha Rone 4
+* Samantha Saint 3
 * Sasha Grey 2
 * Selena Rose
 * Shyla Jennings 2
