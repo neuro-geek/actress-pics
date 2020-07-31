@@ -117,7 +117,7 @@
 * Megan Rain 4
 * Melissa Moore 4
 * Mia Lelani
-* Mia Malkova 3
+* Mia Malkova 4
 * Misha Cross 3
 * Molly Stewart
 * Natalia Starr 2
