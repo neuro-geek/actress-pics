@@ -67,6 +67,7 @@
 * Bridgette B
 * Britney Amber 2 
 * Brooke Adams
+* Brooke Haze
 * Capri Cavanni
 * Carolina Sweets 4
 * Cassidy Banks
