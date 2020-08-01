@@ -264,6 +264,7 @@ Brittany Andrews
 Brittany Benz
 Brittany O'Connell
 Brittany Shae
+Brooke Adams
 Brooke Benz
 Brooke Logan
 Brooke Wylde
@@ -1282,6 +1283,7 @@ Ann Marie / Ann Marie Rios
 
 ### B
 Bella Bends / Serene Siren
+Brooke Adams / Brooke Lee Adams
 Busty Sarai / Sarai - Alex Allen - Sarai Keef
 
 ### C

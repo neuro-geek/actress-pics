@@ -64,6 +64,7 @@
 * Brianna Love 2
 * Bridgette B
 * Britney Amber 2 
+* Brooke Adams
 * Capri Cavanni
 * Carolina Sweets 4
 * Cassidy Banks
