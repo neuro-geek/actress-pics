@@ -60,7 +60,7 @@
 * Blair Williams 2
 * Bonnie Rotten
 * Brandi Love 3
-* Bree Olsen
+* Bree Olson
 * Brett Rossi 3
 * Briana Blair 3
 * Brianna Love 2
