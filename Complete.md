@@ -70,6 +70,7 @@
 * Brooke Haze
 * Brooklyn Blue
 * Cadey Mercury 3
+* Cameron Canela 4
 * Capri Cavanni
 * Carolina Sweets 4
 * Cassidy Banks
