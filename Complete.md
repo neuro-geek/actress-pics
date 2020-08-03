@@ -77,14 +77,15 @@
 * Capri Cavanni
 * Carolina Sweets 4
 * Cassidy Banks
+* Cassie Laine 2
 * Chloe Carter 6
 * Dani Daniels
 * Darcie Dolce 2
 * Diamond Foxxx
 * Dillion Harper 5
 * Dyanna Lauren
-* Ella Hughes 2
 * Eliza Jane
+* Ella Hughes 2
 * Ellie Eilish
 * Elsa Jean 2
 * Emily Willis 3
