@@ -72,6 +72,7 @@
 * Cadey Mercury 3
 * Cameron Canela 4
 * Camryn Kiss
+* Canela Skin
 * Capri Cavanni
 * Carolina Sweets 4
 * Cassidy Banks
