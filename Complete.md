@@ -35,7 +35,7 @@
 * Anna Bell Peaks
 * Anna De Ville 2
 * Anny Aurora
-* Anya Olsen 2
+* Anya Olsen 4
 * Aria Alexander 3
 * Ariana Marie 7
 * Ariella Ferrera 2
@@ -57,7 +57,7 @@
 * Bailey Brooke 2
 * Bambi Black
 * Bella Bends 2
-* Blair Williams 2
+* Blair Williams 6
 * Bonnie Rotten
 * Brandi Love 3
 * Bree Olson
@@ -78,6 +78,7 @@
 * Carolina Sweets 4
 * Cassidy Banks
 * Cassie Laine 2
+* Chanel Preston 8
 * Chloe Carter 6
 * Dani Daniels
 * Darcie Dolce 2
@@ -85,14 +86,15 @@
 * Dillion Harper 5
 * Dyanna Lauren
 * Eliza Jane
+* Eliza Ibarra 4
 * Ella Hughes 2
 * Ellie Eilish
 * Elsa Jean 2
-* Emily Willis 3
+* Emily Willis 4
 * Eva Angelina 2
-* Eva Lovia 3
+* Eva Lovia 4
 * Georgie Lyall 3
-* Gianna Dior
+* Gianna Dior 5
 * Gigi Allens
 * Gina Gerson 2
 * Gina Valentina 5
@@ -109,7 +111,9 @@
 * Jessie Andrews
 * Jessie Rogers
 * Jill Kassidy 3
+* Jillian Janson 3
 * Joanna Angel
+* Joesline Kelly 4
 * Julia Bond
 * Jynx Maze 2
 * Karlee Grey 6
@@ -120,6 +124,7 @@
 * Katrina Jade
 * Kayden Kross
 * Keisha Grey 4
+* Kelsi Monroe 4
 * Kendall Karson
 * Kendra James
 * Kimmy Granger 3
@@ -127,12 +132,13 @@
 * Kleio Valentien 2
 * Kristen Scott 3
 * Lana Rhoades 4
-* Lena Paul 4
 * Lela Star 8
+* Lena Paul 4
 * Lilly Love 3
 * Lisa Ann
 * Luna Lovely
 * Madison Ivy 2
+* Marley Brinx 4
 * Megan Rain 4
 * Melissa Moore 4
 * Mia Lelani
@@ -140,6 +146,7 @@
 * Misha Cross 3
 * Molly Stewart
 * Natalia Starr 2
+* Nicole Aniston 4
 * Olive Glass 3
 * Parker Swayze
 * Piper Perri
@@ -156,6 +163,7 @@
 * Siri
 * Stevie Shae
 * Stoya
+* Sydney Cole 4
 * Tana Lea
 * Tasha Reign
 * Tia Cyrus
