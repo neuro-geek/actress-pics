@@ -467,7 +467,6 @@ Gabby Quinteros
 Gabriella Paltrova
 Genevieve Sinn
 Georgia Jones
-Georgie Lyall
 Gia Derza
 Gia Love
 Gia Paige
@@ -1299,6 +1298,10 @@ Chloe Couture / Chloe Cherry
 
 ### D
 Dahlia Sky - Bailey Blue
+
+### E
+
+Eve Laurence - Eve Lawrence
 
 ### H
 Haley Wilde / Gia DiMarco - Gia Di Marco
