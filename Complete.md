@@ -77,6 +77,7 @@
 * Camryn Kiss
 * Canela Skin
 * Capri Cavanni
+* Carly Rae Summers
 * Carolina Sweets 4
 * Cassidy Banks
 * Cassie Laine 2
