@@ -54,7 +54,7 @@
 * August Ames 5
 * Aurora Snow 2
 * Austyn Moore
-* Autumn Falls
+* Autumn Falls 5
 * Ava Little
 * Bailey Brooke 2
 * Bambi Black
@@ -84,6 +84,7 @@
 * Carolina Sweets 4
 * Cassidy Banks
 * Cassie Laine 2
+* Cassidy Klein 7
 * Chanel Preston 8
 * Chloe Carter 6
 * Dani Daniels
@@ -99,6 +100,7 @@
 * Emily Willis 4
 * Eva Angelina 2
 * Eva Lovia 4
+* Eve Laurence 2
 * Georgie Lyall 3
 * Gianna Dior 5
 * Gigi Allens
@@ -122,6 +124,7 @@
 * Joesline Kelly 4
 * Julia Bond
 * Jynx Maze 2
+* Kali Roses 6
 * Karlee Grey 6
 * Kat Hunter
 * Katana Kombat
@@ -133,6 +136,7 @@
 * Kelsi Monroe 4
 * Kendall Karson
 * Kendra James
+* Kenzie Reeves 3
 * Kimmy Granger 3
 * Kira Noir
 * Kleio Valentien 2
@@ -141,6 +145,7 @@
 * Lela Star 8
 * Lena Paul 4
 * Lilly Love 3
+* Lily Adams 12
 * Lisa Ann
 * Luna Lovely
 * Madison Ivy 2
@@ -176,6 +181,7 @@
 * Valentina Nappi 4
 * Veruca James
 * Vicki Chase
+* Vienna Black 1
 * Whitney Wright
 * Yhivi 2
 * Zoey Monroe 3
