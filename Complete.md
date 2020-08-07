@@ -79,6 +79,7 @@
 * Canela Skin
 * Capri Cavanni
 * Carly Rae Summers
+* Carmen Caliente
 * Carolina Sweets 4
 * Cassidy Banks
 * Cassie Laine 2
