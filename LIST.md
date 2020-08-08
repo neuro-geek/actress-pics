@@ -3,6 +3,7 @@
 Aali Rousseau
 Aaliyah Hadid
 Aaliyah Love
+Abbey Brooks
 Abbey Rain
 Abbie Cat
 Abby Cross
@@ -90,6 +91,7 @@ Alyssa Branch
 Alyssa Cole
 Alyssa Lynn
 Alyssa Reece
+Alyssia Kent
 Amai Liu
 Amanda Lane
 Amara Romani
@@ -121,6 +123,8 @@ Angel Wicky
 Angela Kiss
 Angela Sommers
 Angela White
+Angelica Raven
+Angelica Taylor
 Angelika Grays
 Angelina Armani
 Angelina Valentine
@@ -129,11 +133,9 @@ Angie Savage
 Anie Darling
 Anikka Albrite
 Anissa Kate
-Ann Himukai
-Ann Marie Rios
+Ann Marie
 Anna Bell Peaks
 Anna De Ville
-Anna Morna
 Annabelle Lee
 Anne Amari
 Annette Schwarz
@@ -180,7 +182,6 @@ Ashlynn Brooke
 Ashlynn Rae
 Ashlynn Taylor
 Asia Carrera
-Aspen Ora
 Aspen Romanoff
 Astrid Star
 Asuna Fox
@@ -188,18 +189,23 @@ Athena Faris
 Athena Palomino
 Athena Rayne
 Athena Summers
+Aubree Valentine
 Aubrey Addams
 Aubrey Black
 Aubrey Marie
 Aubrey Sinclair
 Aubrey Star
+Audrey Bitoni
 Audrey Holiday
+Audrey Miles
+Audrey Noir
 Audrey Royal
 August Ames
-August Taylor
 Aurelly Rebel
 Aurielee Summers
+Aurora Snow
 Austin Taylor
+Austyn Moore
 Autumn Briggs
 Autumn Falls
 Ava Addams
@@ -221,6 +227,7 @@ Bambi Black
 Bambi Blacks
 Beata Undine
 Becky Bandini
+Bella Bends
 Bella Rolland
 Belladonna
 Bellah Dahl
@@ -240,12 +247,14 @@ Bonnie Rose
 Bonnie Rotten
 Brandi Love
 Brandy Aniston
+Brea Lynn
 Breanna Sparks
 Bree Daniels
-Bree Olsen
+Bree Olson
 Brett Rossi
 Briana Banderas
 Briana Banks
+Briana Blair
 Brianna Love
 Briar Rose
 Brice Bardot
@@ -258,9 +267,12 @@ Brittany Andrews
 Brittany Benz
 Brittany O'Connell
 Brittany Shae
+Brooke Adams
 Brooke Benz
+Brooke Haze
 Brooke Logan
 Brooke Wylde
+Brooklyn Blue
 Brooklyn Chase
 Brooklyn Lee
 Bryci
@@ -278,6 +290,7 @@ Camryn Kiss
 Candice Dare
 Candice Nicole
 Candy Vivian
+Canela Skin
 Capri Anderson
 Capri Cavanni
 Carla Cox
@@ -286,6 +299,7 @@ Carly Rae Summers
 Carmen Bunny
 Carmen Caliente
 Carmen Callaway
+Carmen Luvana
 Carolina Abril
 Carolina Sweets
 Carter Cruise
@@ -388,6 +402,7 @@ Dolly Leigh
 Dolly Little
 Dora Venter
 Draven Star
+Dyanna Lauren
 Dylan Phoenix
 Dylan Ryder
 
@@ -429,6 +444,7 @@ Eva Angelina
 Eva Karera
 Eva Lovia
 Eva Smolina
+Eve Laurence
 Evelin Stone
 Eveline Dellai
 Evelyn Claire
@@ -624,6 +640,7 @@ Karmen Karma
 Kasey Miller
 Kasey Warner
 Kat Dior
+Kat Hunter
 Kat Monroe
 Katana
 Katana Kombat
@@ -750,13 +767,13 @@ Leyla Fiore
 Lezley Zen
 Lilly Banks
 Lilly Ford
+Lilly Love
 Lily Adams
 Lily Cade
 Lily Glee
 Lily Jordan
 Lily LaBeau
 Lily Lane
-Lily Love
 Lily Rader
 Lina Paige
 Linda Sweet
@@ -862,6 +879,7 @@ Mercedes Carrera
 Mia Collins
 Mia Cruise
 Mia Khalifa
+Mia Lelani
 Mia Li
 Mia Malkova
 Mia Melano
@@ -920,6 +938,7 @@ Natasha Voya
 Natasha White
 Natty Mellow
 Nautica Thorn
+Naveen Ora
 Nekane Sweet
 Nesty
 Nia Love
@@ -967,6 +986,7 @@ Paige Owens
 Paisley Brooks
 Pamela Morrison
 Paola Guerra
+Parker Swayze
 Paula Shy
 Payton Simmons
 Penelope Heart
@@ -1263,10 +1283,16 @@ Aali Rousseau / Aali Kali
 Addison Ryder / Davina Davis
 Alana Cruise - Savannah Fyre
 Ana Bell Evans / Anabelle
+Anastasia Morna - Anna Morna
+Andi Rye / Zoe Sparx - Zoe Sparks
+Angelica Taylor / August Taylor
 Anikka Albrite - Annika Albrite
-Ann Himukai - An Himukai
+Ann Marie / Ann Marie Rios
 
 ### B
+Bree Olson - Bree Olsen
+Bella Bends / Serene Siren
+Brooke Adams / Brooke Lee Adams
 Busty Sarai / Sarai - Alex Allen - Sarai Keef
 
 ### C
@@ -1276,6 +1302,10 @@ Chloe Couture / Chloe Cherry
 
 ### D
 Dahlia Sky - Bailey Blue
+
+### E
+
+Eve Laurence - Eve Lawrence
 
 ### H
 Haley Wilde / Gia DiMarco - Gia Di Marco
@@ -1297,6 +1327,7 @@ Krystal Boyd / Abbie - Anjelica
 Lacy Spice / Kayla Kayden
 Lexi Brooks / Giselle Leon
 Lexi Foxy / Vera King
+Lilly Love / Lily Love (2012)
 Lily LaBeau / Lily Labeau
 Lina Paige - Billi Ann
 Liv Revamped - Liv Aguilera
@@ -1311,6 +1342,7 @@ Miss Goldie / Goldie Glock
 
 ### N
 Nadya Nabakova / Bunny Colby
+Naveen Ora / Aspen Ora
 
 ### P
 Polly Pons - Poopea

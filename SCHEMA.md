@@ -4,13 +4,24 @@
 ### Format & Quality
 Exported images should be standard JPEG's at roughly 80% quality (very high).
 
+File size should be around 350 kB maximum, though not at the cost of lower quality or lower than 1200 px vertical in dimensions.
+
+File extension should be `.jpg`.
+
 ### Dimensions
 Exported images should roughly follow 2:3 for portrait orientation and 16:9 for landscape.
 
 Resolution should be at least 1200 px high for portrait images, and 1280x720 px for landscape.
 
+### Other
+Logos should not be visible.
+
+Avoid unnecessary space above the head. Between 5 and 15 pixels is good (on a 1200 px high image).
+
 ## Naming
 The structure is `Actress-Name_Set_Crop_Pose_State_Number.jpg`
+
+For example, `Jenna-Jameson_1_3Q_Front_NN.jpg`
 
 ### Actress Name
 Actress name should follow the primary name listed in this repo, which usually is the name used on FreeOnes.
@@ -24,6 +35,8 @@ The Exception to this are themed images. C for Christmas, H for Halloween, and X
 * Bust, somewhere between the navel and bust, and up
 * Torso, above hips, below navel
 * 3Q, three-quarters view, about mid-thigh, and up
+* Sit, when you see the person sitting
+* Kneel, where you can see the knees touch the ground
 * Wide, for landscape images where the subject is in some horizontal position
 
 ### Pose
@@ -31,7 +44,6 @@ The Exception to this are themed images. C for Christmas, H for Halloween, and X
 * Front
 * Back
 * Side
-* Sit
 
 #### Landscape:
 * Back, on her back
