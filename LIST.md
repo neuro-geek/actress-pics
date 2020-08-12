@@ -342,6 +342,7 @@ Chloe Foster
 Chloe Scott
 Chloe Temple
 Christiana Cinn
+Christina Shine
 Christie Stevens
 Christy Love
 Christy Mack

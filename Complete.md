@@ -90,6 +90,7 @@
 * Charley Chase 5
 * Chloe Carter 6
 * Chloe Couture 2
+* Christina Shine 3
 * Dani Daniels
 * Darcie Dolce 2
 * Diamond Foxxx
