@@ -89,6 +89,7 @@
 * Chanel Preston 8
 * Charley Chase 5
 * Chloe Carter 6
+* Chloe Couture 2
 * Dani Daniels
 * Darcie Dolce 2
 * Diamond Foxxx
