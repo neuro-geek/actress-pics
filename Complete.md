@@ -185,6 +185,7 @@
 * Tasha Reign
 * Tia Cyrus
 * Valentina Nappi 4
+* Vanna Bardot
 * Veruca James
 * Vicki Chase
 * Vienna Black 1
