@@ -306,6 +306,7 @@ Carter Cruise
 Casey Calvert
 Casey Cumz
 Casi James
+Cassandra Calogera
 Cassandra Nix
 Cassidy Banks
 Cassidy Klein
@@ -325,6 +326,7 @@ Chanel Shortcake
 Chanell Heart
 Charity Bangs
 Charity Crawford
+Charley Chase
 Charlotte Cross
 Charlotte Sartre
 Charlotte Stokely
@@ -340,6 +342,7 @@ Chloe Foster
 Chloe Scott
 Chloe Temple
 Christiana Cinn
+Christina Shine
 Christie Stevens
 Christy Love
 Christy Mack
@@ -1279,6 +1282,7 @@ Zoey Portland
 "FreeOnes/IAFD" or "Name - Other - common - names"
 
 ### A
+Alli Rae - Allie Rae
 Aali Rousseau / Aali Kali
 Addison Ryder / Davina Davis
 Alana Cruise - Savannah Fyre

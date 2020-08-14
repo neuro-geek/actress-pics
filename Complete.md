@@ -15,6 +15,7 @@
 * Adriana Chechik 2
 * Aidra Fox 7
 * AJ Applegate
+* Alana Cruise 4
 * Alessa Savage
 * Alessandra Jane
 * Alex Blake
@@ -82,11 +83,16 @@
 * Carmen Caliente
 * Carmen Luvana
 * Carolina Sweets 4
+* Carter Cruise 4
+* Cassandra Calogera
 * Cassidy Banks
 * Cassie Laine 2
 * Cassidy Klein 7
 * Chanel Preston 8
+* Charley Chase 5
 * Chloe Carter 6
+* Chloe Couture 2
+* Christina Shine 3
 * Dani Daniels
 * Darcie Dolce 2
 * Diamond Foxxx
@@ -179,6 +185,7 @@
 * Tasha Reign
 * Tia Cyrus
 * Valentina Nappi 4
+* Vanna Bardot
 * Veruca James
 * Vicki Chase
 * Vienna Black 1
